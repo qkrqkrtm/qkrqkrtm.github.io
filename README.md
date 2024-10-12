@@ -1,1 +1,0 @@
-# qkrqkrtm.github.io
